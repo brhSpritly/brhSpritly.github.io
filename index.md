@@ -12,3 +12,6 @@ Er hat eine genauso humorvolle Frau und ein Tochter.
 * listig
 * verständnisvoll
 * scharfsinnig
+
+Zitat:
+> Wir haben es mit vorsätzlichem Mord zu tun!
